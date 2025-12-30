@@ -1,1 +1,0 @@
-# capinhasmagsafe2026.github.io
